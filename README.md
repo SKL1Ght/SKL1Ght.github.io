@@ -1,3 +1,1 @@
-# SKL1Ght.github.io
-
-## 毛毛放大屁
+# SKL1Ght
